@@ -1,3 +1,1 @@
-# cursos
-
-### Em construção! 
+tentativas de aprendizado registradas aqui rs 
